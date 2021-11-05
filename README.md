@@ -80,6 +80,10 @@ We could work on Software Law toghether as this is an extremely interesting fiel
 
 `**** ****`
 
+continued here: https://github.com/EGYPTPHOENICKSVALLEYOFSPHINX/WORLDCONSENSUS/blob/main/%F0%9F%92%9ABLOCKCHAINEDLAW%F0%9F%92%9A.md & here: $CONSENSUS #CONSENSUS https://github.com/EGYPTPHOENICKSVALLEYOFSPHINX/WORLDCONSENSUS $WORLDCONSENSUS #WORLDCONSENSUS $WORLD #WORLD 💚
+
+`**** ****`
+
 See also: https://github.com/PluralityNET/KEEPTHEWORLD repo have been created as a placeholder for ethics and ecology system.
 
 See also (and join the development!): https://github.com/LibertarianLife
