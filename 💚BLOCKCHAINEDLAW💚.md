@@ -78,6 +78,10 @@ Eugene Markandeya 𒀭𒄑𒉋𒂵𒈨𒌋𒌋𒌋 🐡 Philippow, [06.11.2021 0
 [Переслано от Eugene Markandeya 𒀭𒄑𒉋𒂵𒈨𒌋𒌋𒌋 🐡 Philippow]
 We could work on Software Law toghether as this is an extremely interesting field for myself, too—if you prefer—and I think a lot about that and reading on the history of Roman Rights System. We need to modernize it and allow for blockchain-encoding it, and to finally encode creating the SOFTWARE LAW examples and maybe even practice and theory.
 
+continued here: https://github.com/EGYPTPHOENICKSVALLEYOFSPHINX/WORLDCONSENSUS/blob/main/%F0%9F%92%9ABLOCKCHAINEDLAW%F0%9F%92%9A.md & here: $CONSENSUS #CONSENSUS https://github.com/EGYPTPHOENICKSVALLEYOFSPHINX/WORLDCONSENSUS $WORLDCONSENSUS #WORLDCONSENSUS $WORLD #WORLD 💚
+
+`**** ****`
+
 `**** ****`
 
 See also: https://github.com/PluralityNET/KEEPTHEWORLD repo have been created as a placeholder for ethics and ecology system.
